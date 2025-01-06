@@ -2,7 +2,7 @@
 
 ¿Cansado de que el lag arruine tus partidas en Free Fire? ¿Te imaginas una herramienta que haga tu experiencia de juego más fluida y te permita concentrarte únicamente en ganar? ¡Miregaloff.apkys APK podría ser la solución que has estado buscando! Este innovador aliado para gamers no solo elimina el lag, sino que también optimiza el rendimiento de tu juego y te proporciona ventajas tácticas que te permitirán destacar en cada partida.
 
-| ![Miregaloff apkys](https://github.com/user-attachments/assets/4cf949fd-7eb6-4668-b773-5f2536762082) | <a href="https://spoo.me/JZKmXS">![image](https://github.com/user-attachments/assets/62c94d7f-fe58-476d-8c18-cb4243a85d46)</a> |
+| ![Miregaloff apkys](https://github.com/user-attachments/assets/4cf949fd-7eb6-4668-b773-5f2536762082) | <a href="https://miregaloff.apkys.xyz/">![image](https://github.com/user-attachments/assets/62c94d7f-fe58-476d-8c18-cb4243a85d46)</a> |
 |:-------------------------------------------------:|-----------------------|
 | **Plataforma:** Android 9.0+                        | **Versão:** 9.6        |
 | **Tamanho:** 64 MB                              | ⭐️⭐️⭐️⭐️⭐️ (5/5) |
